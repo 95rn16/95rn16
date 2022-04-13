@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @95rn16
-- 👀 I’m interested in Vtubers
+- 👀 I’m interested in vtubers and some streamers
 - 💞️ I’m looking to collaborate on mafumafu
 - 📫 Twitter: @95rn16
 
